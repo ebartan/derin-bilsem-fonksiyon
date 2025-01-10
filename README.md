@@ -1,0 +1,1 @@
+# derin-bilsem-fonksiyon
